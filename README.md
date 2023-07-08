@@ -1,1 +1,0 @@
-# gold-stone-tech-assignmnet
